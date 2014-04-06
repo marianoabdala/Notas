@@ -12,4 +12,4 @@ Del latín _captiāre_.
 > Sorprender a alguien en un descuido, error o acción que desearía ocultar.
 
 **Luego**  
-Una pregunta capciosa es una pregunta con la que se pretende cazar a quién se la formula.
+Una pregunta capciosa es una pregunta con la que se pretende cazar a quien se la formula.
